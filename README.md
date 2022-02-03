@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AndrewDawnbringer
+- 👀 I’m interested in making games, coding, graphics, gaming.
+- 🌱 I’m currently learning everything I can, including but not limited to web developement in every way.
+- 💞️ I’m looking to collaborate on some secret projects.
+- 📫 How to reach me? Try Discord for example: Endy#9362
